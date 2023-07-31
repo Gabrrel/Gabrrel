@@ -1,0 +1,3 @@
+- hallo, i dont understand nothing about codes or whatever but im here to learn.
+- im from Brazil but i speak english and understand a little of spanish and italian
+- pls dont hack me :3
